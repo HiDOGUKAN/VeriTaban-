@@ -1,1 +1,1 @@
-# VeriTaban-
+# VeriTabanı
